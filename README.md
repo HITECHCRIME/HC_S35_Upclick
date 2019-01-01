@@ -27,6 +27,8 @@ Mind goes alight, mind goes alight.
 
 Total blinds, share share share
 I'm not alone yet feeling' scared
-Fake windows only friends, 
+Routing signals from end to end, fake windows only friends, 
 wishing the upclick would end
 
+
+spitrap here
