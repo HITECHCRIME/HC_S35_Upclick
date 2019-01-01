@@ -4,6 +4,7 @@ Hitech Crime Single 'Upclick'
 **Beat:** Mumble  Metro Boomin Type Beat Instrumental (Prod. Tej).mp3
 
 Improv song on the phone. Duration 3:02min.
+Include a spitrap!
 
 I ain't invited
 Awoke again 
