@@ -6,10 +6,16 @@ Hitech Crime Single 'Upclick'
 Improv song on the phone. Duration 3:02min.
 Include a spitrap!
 
+Roll honey
 I ain't invited
-Awoke again 
+Awoke again triggering
 cock and moe
 
+fucking dope
 Pretty fucking dope ye
 
+x
+
 Upclick
+
+Fucking name
