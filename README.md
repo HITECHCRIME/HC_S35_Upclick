@@ -32,3 +32,13 @@ wishing the upclick would end
 
 
 spitrap here
+
+I miss the times
+When I thought I was alive
+Holding my breath for days to check, losing my flight
+how it feels to spot a break in your neck
+Feel the burn of upclick
+Pressing the buttons coz I'm feeling like wacko
+Going after the swatches, not long and people up it
+Big campaigns (?) not sharing the profits
+Mind the gap between virtual and real
