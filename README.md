@@ -19,3 +19,14 @@ x
 Upclick
 
 Fucking name
+
+Second pass reckon swerving round triple
+Feelin' thrill like I'm living a life
+Click click click shot up to social spheres
+Mind goes alight, mind goes alight.
+
+Total blinds, share share share
+I'm not alone yet feeling' scared
+Fake windows only friends, 
+wishing the upclick would end
+
