@@ -14,14 +14,12 @@ cock and moe
 this so 
 for ya
 fucking dope yeah
-pretty fucking dope ye
-all the nights
-looking for praise
-
-what you lookin' for is
+pretty dope ye praised nights
+what ya lookin' for is
 upclick
 
 fucking name
+that's right
 x
 
 Second pass reckon swerving round triple
