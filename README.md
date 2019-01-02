@@ -6,6 +6,7 @@ Hitech Crime Single 'Upclick'
 Improv song on the phone. Duration 3:02min.
 Include a spitrap!
 
+[CHORUS]
 Roll honey
 not invited
 Awoke again triggering no
@@ -21,6 +22,7 @@ fucking name
 that's right
 x
 
+[VERSE 1]
 Second pass reckon swerving round triple
 Feelin' thrill like I'm living a life
 Click click click shot up to social spheres
@@ -34,6 +36,7 @@ wishing the upclick would end
 
 spitrap here
 
+[VERSE 2]
 I miss the times
 When I thought I was alive
 losing my flight in the sky 
