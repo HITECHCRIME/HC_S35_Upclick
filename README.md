@@ -44,3 +44,8 @@ Going after the swatches, not long and people up it
 Big campaigns (?) not sharing the profits
 Mind the gap between virtual and real
 The options are there, so are the stakes
+
+likes, hearts, souls and mojis on screen
+amount to nothing more than a veil too thin
+your own loop your own mind craves
+attention coded into you at the origin_
