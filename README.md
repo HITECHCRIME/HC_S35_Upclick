@@ -9,17 +9,18 @@ Include a spitrap!
 [CHORUS]
 Roll honey
 not invited ain't
-Awoke again triggering no
+Awoke again triggering all
 cock and moe (ey)
-
 this so, for ya
 fucking dope yeah
 all the praised nights
 what ya lookin' for is
 upclick
+x
+x
 
 fucking name
-that's right
+that's right poke me
 x
 
 [VERSE 1]
