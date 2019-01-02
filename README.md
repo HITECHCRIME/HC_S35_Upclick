@@ -9,12 +9,11 @@ Include a spitrap!
 Roll honey
 not invited
 Awoke again triggering no
-cock and moe
+cock and moe (ey)
 
-this so 
-for ya
+this so, for ya
 fucking dope yeah
-pretty dope ye praised nights
+all the praised nights
 what ya lookin' for is
 upclick
 
