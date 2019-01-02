@@ -9,7 +9,7 @@ Include a spitrap!
 [CHORUS]
 Roll honey
 not invited ain't
-Awoke again (interconnect?)(triggering?) all
+awoke again (interconnect?)(triggering?) (among sleepers) all
 cock and moe (ey)
 this so, for ya
 fucking dope yeah (hope?)
