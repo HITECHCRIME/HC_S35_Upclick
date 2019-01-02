@@ -8,7 +8,7 @@ Include a spitrap!
 
 [CHORUS]
 Roll honey
-not invited
+not invited ain't
 Awoke again triggering no
 cock and moe (ey)
 
