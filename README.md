@@ -7,18 +7,22 @@ Improv song on the phone. Duration 3:02min.
 Include a spitrap!
 
 Roll honey
-I ain't invited
-Awoke again triggering
+not invited
+Awoke again triggering no
 cock and moe
 
-fucking dope
-Pretty fucking dope ye
+this so 
+for ya
+fucking dope yeah
+pretty fucking dope ye
+all the nights
+looking for praise
 
+what you lookin' for is
+upclick
+
+fucking name
 x
-
-Upclick
-
-Fucking name
 
 Second pass reckon swerving round triple
 Feelin' thrill like I'm living a life
