@@ -53,5 +53,5 @@ The options are there, so are the stakes
 likes, hearts, souls and mojis on screen
 amount to nothing more than a veil too thin
 your own loop your own kind craves
-attention coded into you at the origin_
+attention coded minds / into you at the origin_
 coded into your own mind
