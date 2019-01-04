@@ -17,7 +17,8 @@ routing signals from end to end
 fake windows (your) only friends 
 
 when will it end, i don't care
-once your reach regular your reign will be done
+once your reach regular your reign 
+we'll be done and i'll finally feel fair
 
 wishing the upclick would end
 x
