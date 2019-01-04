@@ -7,14 +7,18 @@ Improv song on the phone. Duration 3:02min.
 Include a spitrap!
 
 [VERSE 1]
-Second pass reckon swerving round triple
-Feelin' thrill like I'm living a life
+(It's a) second pass - reckon swerving round triple -
+Feelin' thrill - like I'm living a life
 Click click click shot up to social spheres
 Mind goes alight, mind goes alight.
-Total blinds, share share share
+Total blinds, share share share share
 I'm not alone yet feeling' scared
 routing signals from end to end 
-fake windows only friends 
+fake windows (your) only friends 
+
+when will it end, i don't care
+once your reach regular your reign will be done
+
 wishing the upclick would end
 x
 x
@@ -38,7 +42,7 @@ SPITRAP
 feelin' the burn like a champ
 making it churn 
 what's good what's with ye
-looking for a helping hand
+looking for a helping hand?
 
 [VERSE 2]
 x
