@@ -6,24 +6,6 @@ Hitech Crime Single 'Upclick'
 Improv song on the phone. Duration 3:02min.
 Include a spitrap!
 
-[CHORUS]
-Roll honey
-not invited ain't
-awoke again (interconnect?)(triggering?) (among sleepers) all
-cock and moe (ey)
-
-this so for ya, 
-fucking dope yeah (hope?)
-all the praised nights
-what ya lookin' for is
-upclick
-x
-x
-
-fucking name
-that's right poke me
-x
-
 [VERSE 1]
 Second pass reckon swerving round triple
 Feelin' thrill like I'm living a life
@@ -35,10 +17,25 @@ Routing signals from end to end,
 Fake windows only friends, 
 wishing the upclick would end
 
+[BRIDGE]
+Roll honey
+not invited ain't
+awoke again (interconnect?)(triggering?) (among sleepers) all
+cock and moe (ey)
 
-spitrap here
+[CHORUS]
+this so for ya, 
+fucking dope yeah (hope?)
+all the praised nights
+what ya lookin' for is
+upclick
 
 [VERSE 2]
+x
+x
+fucking name
+that's right poke me
+x
 I miss the times
 When I thought I was alive
 losing my flight in the sky 
@@ -56,3 +53,16 @@ amount to nothing more than a veil too thin
 your own loop your own kind craves
 attention coded minds / into you at the origin_
 coded into your own mind
+
+[BRIDGE]
+Roll honey
+not invited ain't
+awoke again (interconnect?)(triggering?) (among sleepers) all
+cock and moe (ey)
+
+[CHORUS]
+this so for ya, 
+fucking dope yeah (hope?)
+all the praised nights
+what ya lookin' for is
+upclick
