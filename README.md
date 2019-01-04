@@ -16,8 +16,9 @@ I'm not alone yet feeling' scared
 routing signals from end to end 
 fake windows (your) only friends 
 
-when will it end, i don't care
+well just end the spread, i don't care
 once your reach regular your reign 
+cast your face
 we'll be done and you'll be fair
 honesty swirling down the drain
 
