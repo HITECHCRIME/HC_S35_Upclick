@@ -18,9 +18,10 @@ fake windows (your) only friends
 
 when will it end, i don't care
 once your reach regular your reign 
-we'll be done and i'll finally feel fair
+we'll be done and you'll be fair
+honesty swirling down the drain
 
-wishing the upclick would end
+wish the upclick would end
 x
 x
 and so please
