@@ -13,7 +13,7 @@ Click click click shot up to social spheres
 Mind goes alight, mind goes alight.
 Total blinds, share share share share
 I'm not alone yet feeling' scared
-routing signals from end to end 
+routing signals from end to end (meant to end)
 fake windows (your) only friends 
 
 well just end the spread, i don't care
