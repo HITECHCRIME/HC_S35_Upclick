@@ -13,8 +13,8 @@ Click click click shot up to social spheres
 Mind goes alight, mind goes alight.
 Total blinds, share share share
 I'm not alone yet feeling' scared
-Routing signals from end to end, 
-Fake windows only friends, 
+routing signals from end to end 
+fake windows only friends 
 wishing the upclick would end
 x
 x
@@ -33,6 +33,12 @@ fucking dope yeah (hope?)
 all the praised nights
 what ya lookin' for is
 upclick
+
+SPITRAP
+feelin' the burn like a champ
+making it churn 
+what's good what's with ye
+looking for a helping hand
 
 [VERSE 2]
 x
