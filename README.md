@@ -16,6 +16,10 @@ I'm not alone yet feeling' scared
 Routing signals from end to end, 
 Fake windows only friends, 
 wishing the upclick would end
+x
+x
+and so please
+
 
 [BRIDGE]
 Roll honey
@@ -38,7 +42,7 @@ that's right poke me
 x
 I miss the times
 When I thought I was alive
-losing my flight in the sky 
+losing my constant flight in the sky 
 Holding my breath for days to check, 
 how it feels to spot a break in your neck
 Feel the burn of upclick
