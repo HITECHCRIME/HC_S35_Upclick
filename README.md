@@ -11,6 +11,7 @@ Roll honey
 not invited ain't
 awoke again (interconnect?)(triggering?) (among sleepers) all
 cock and moe (ey)
+
 this so for ya, 
 fucking dope yeah (hope?)
 all the praised nights
