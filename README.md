@@ -9,7 +9,7 @@ Include a spitrap!
 [VERSE 1]
 (It's a) second pass - reckon swerving round triple -
 Feelin' thrill - like I'm living a life
-Click click click shot up to social spheres
+Click click click shot up to the social spheres
 Mind goes alight, mind goes alight.
 Total blinds, share share share share
 I'm not alone yet feeling' scared
