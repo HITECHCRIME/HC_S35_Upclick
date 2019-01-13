@@ -63,9 +63,9 @@ I miss the times
 When I thought I was alive
 losing my constant flight in the sky 
 Holding my breath for days to check, 
-how it feels to spot a break in your neck
+how it feels to spot a break your neck
 Feel the burn of an upclick
-Pressing the buttons coz I'm feeling like wacko
+Pressing the buttons launching from orbit
 Going after the swatches, not long and people up it and up it
 
 Big campaigns (?) not sharing the profits
