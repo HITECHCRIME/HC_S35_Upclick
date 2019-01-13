@@ -66,7 +66,7 @@ Holding my breath for days to check,
 how it feels to spot a break in your neck
 Feel the burn of an upclick
 Pressing the buttons coz I'm feeling like wacko
-Going after the swatches, not long before people up it and up it
+Going after the swatches, not long and people up it and up it
 
 Big campaigns (?) not sharing the profits
 Mind the gap between virtual and real
