@@ -11,7 +11,7 @@ Include a spitrap!
 feelin' thrill - like I'm living a life
 click click click shot up to the social spheres
 mind goes alight, mind goes alight.
-total blinds, share share share share
+total blinds, share share share (share)?
 i'm not alone yet feeling' scared
 routing signals from end to end
 fake windows (your) only friends 
