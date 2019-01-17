@@ -2,6 +2,12 @@
 
 Hitech Crime Single 'Upclick'
 
+## VIDEO IDEA
+
+PARKING LOT, HOODED, STARING INTO THE PHONES, CROUCHED, TECHWEAR FIT.
+Posting, posting, constantly posting to social media. "Staying connected."
+Ends in a view of hundred smartphones lying down on the floor and ringing/notifying.
+
 **Beat:** Mumble  Metro Boomin Type Beat Instrumental (Prod. Tej).mp3
 Improv song on the phone. Duration 3:02min.
 Include a spitrap!
@@ -15,6 +21,9 @@ total blinds, share share share (share)?
 i'm not alone yet feeling' scared
 routing signals from end to end
 fake windows (your) only friends 
+x
+x
+x
 
 [BRIDGE]
 damn roll honey
@@ -32,7 +41,7 @@ upclick
 upclick
 viewers tell me if i'm un-fit
 standing at the abyss
-would you jump it
+would you jump it x2
 
 SPITRAP
 feelin' the burn like a champ
