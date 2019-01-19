@@ -49,21 +49,47 @@ would you jump it x2
 losing constant flight in the sky 
 I miss the times - when I thought I was alive
 holding my breath for days to check, wanna
-know how it feels to spot a break your 
-Feel the burn of an upclick
+know how it feels to spot a break your trend
+feel the burn of an upclick
 tapping the button and still going public (pressing the buttons launching from orbit)
 so don't drop it, going after the swatches, 
 not long for people to  up it and up it
+snatching that profit
+
+[BRIDGE]
+damn roll honey
+not invited ain't
+awoke again (interconnect?)(triggering?) (among sleepers) all
+cock and moe (ey)
+
+[CHORUS]
+this so for ya, 
+fucking dope yeah (hope?)
+all the praised nights
+what ya lookin' for is
+upclick
+
+likes, hearts, souls and mojis - on screen
+attention coded mind - crave's sick 
+your own loop, your own kind - play this -
+into your own thought games that you've made it
+
+tell yourself
+i made it x5
+
+well just end the spread, (meant to end) - i don't care
+cast your face like most nights
+we'll be done and you'll be fair
+once your reach your regular  reign 
 
 Big campaigns (?) not sharing the profits
 Mind the gap between virtual and real
 The options are there, so are the stakes
+ 
+nothing more than a veil too thin
+into you at the origin_
 
-likes, hearts, souls and mojis on screen
-amount to nothing more than a veil too thin
-your own loop your own kind craves
-attention coded minds / into you at the origin_
-coded into your own mind
+
 
 blue whale sticking the cause
 ripping the fuzz, ey cuz
@@ -77,10 +103,7 @@ making churn ye
 what's good what's with ye
 looking for a helping hand?
 
-well just end the spread, (meant to end) - i don't care
-once your reach regular your reign 
-cast your face like most nights
-we'll be done and you'll be fair
+
 
 honesty swirling down the drain
 
