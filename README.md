@@ -45,6 +45,32 @@ viewers tell me if i'm un-fit
 standing at the abyss
 would you jump it x2
 
+[VERSE 2]
+losing constant flight in the sky 
+I miss the times - when I thought I was alive
+holding my breath for days to check, wanna
+know how it feels to spot a break your 
+Feel the burn of an upclick
+tapping the button and still going public (pressing the buttons launching from orbit)
+so don't drop it, going after the swatches, 
+not long for people to  up it and up it
+
+Big campaigns (?) not sharing the profits
+Mind the gap between virtual and real
+The options are there, so are the stakes
+
+likes, hearts, souls and mojis on screen
+amount to nothing more than a veil too thin
+your own loop your own kind craves
+attention coded minds / into you at the origin_
+coded into your own mind
+
+blue whale sticking the cause
+ripping the fuzz, ey cuz
+whatcha doing online
+this is fine, this allright
+i won't rat you out but you're mine
+
 SPITRAP
 feelin' the burn like a champ
 making churn ye
@@ -70,30 +96,8 @@ x
 fucking name
 that's right poke me
 x
-I miss the times
-When I thought I was alive
-losing my constant flight in the sky 
-Holding my breath for days to check, 
-how it feels to spot a break your neck
-Feel the burn of an upclick
-pressing the button now going public (Pressing the buttons launching from orbit)
-Going after the swatches, not long and people up it and up it
 
-Big campaigns (?) not sharing the profits
-Mind the gap between virtual and real
-The options are there, so are the stakes
 
-likes, hearts, souls and mojis on screen
-amount to nothing more than a veil too thin
-your own loop your own kind craves
-attention coded minds / into you at the origin_
-coded into your own mind
-
-blue whale sticking the cause
-ripping the fuzz, ey cuz
-whatcha doing online
-this is fine, this allright
-i won't rat you out but you're mine
 
 [BRIDGE]
 Roll honey
