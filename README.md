@@ -74,6 +74,8 @@ attention coded mind - crave's sick
 your own loop, your own kind - play this -
 into your own thought games that you've made it
 
+--
+
 tell yourself
 i made it x5
 
