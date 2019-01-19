@@ -76,7 +76,7 @@ losing my constant flight in the sky
 Holding my breath for days to check, 
 how it feels to spot a break your neck
 Feel the burn of an upclick
-Pressing the buttons launching from orbit
+pressing the button now going public (Pressing the buttons launching from orbit)
 Going after the swatches, not long and people up it and up it
 
 Big campaigns (?) not sharing the profits
