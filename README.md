@@ -54,7 +54,10 @@ feel the burn of an upclick
 tapping the button and still going public (pressing the buttons launching from orbit)
 so don't drop it, going after the swatches, 
 not long for people to  up it and up it
+getting the profit
 snatching that profit
+rising above it
+
 
 [BRIDGE]
 damn roll honey
