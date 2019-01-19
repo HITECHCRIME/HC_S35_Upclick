@@ -53,7 +53,7 @@ know how it feels to spot a break your trend
 feel the burn of an upclick
 tapping the button and still going public (pressing the buttons launching from orbit)
 so don't drop it, going after the swatches, 
-not long for people to  up it and up it
+not long, people to  up it and up it
 getting the profit
 snatching that profit
 rising above it
@@ -72,8 +72,8 @@ all the praised nights
 what ya lookin' for is
 upclick
 
-likes, hearts, souls and mojis - on screen
-attention coded mind - crave's sick 
+likes, hearts, souls and mojis - on screen / copy, paste, edit, share
+attention coded minds - craves sick 
 your own loop, your own kind - play this -
 into your own thought games that you've made it
 
