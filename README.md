@@ -23,9 +23,9 @@ total blinds, share share share (share)?
 i'm not alone yet feeling' scared
 routing signals from end to end
 fake windows (your) only friends 
-x
-x
-x
+well just end the spread, (meant to end) - i don't care
+cast your face like most nights
+we'll be done and you'll be fair
 
 [BRIDGE]
 damn roll honey
@@ -46,18 +46,17 @@ standing at the abyss
 would you jump it x2
 
 [VERSE 2]
-losing constant flight in the sky 
+losing my constant flight in the sky 
 I miss the times - when I thought I was alive
 holding my breath for days to check, wanna
 know how it feels to spot a break your trend
 feel the burn of an upclick
-tapping the button and still going public (pressing the buttons launching from orbit)
+tapping the button, still going public (pressing the buttons launching from orbit)
 so don't drop it, going after the swatches, 
 not long, people to  up it and up it
 getting the profit
 snatching that profit
 rising above it
-
 
 [BRIDGE]
 damn roll honey
@@ -82,9 +81,7 @@ into your own thought games that you've made it
 tell yourself
 i made it x5
 
-well just end the spread, (meant to end) - i don't care
-cast your face like most nights
-we'll be done and you'll be fair
+
 once your reach your regular  reign 
 
 Big campaigns (?) not sharing the profits
