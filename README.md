@@ -90,6 +90,7 @@ once your reach your regular  reign
 Big campaigns (?) not sharing the profits
 Mind the gap between virtual and real
 The options are there, so are the stakes
+i hope you get it's unreal
  
 nothing more than a veil too thin
 into you at the origin_
