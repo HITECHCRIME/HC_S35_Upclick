@@ -12,6 +12,8 @@ Ends in a view of hundred smartphones lying down on the floor and ringing/notify
 Improv song on the phone. Duration 3:02min.
 Include a spitrap!
 
+```
+
 [VERSE 1]
 x (include 2 verses before as right now it starts weirdly)
 x
@@ -137,3 +139,5 @@ fucking dope yeah (hope?)
 all the praised nights
 what ya lookin' for is
 upclick
+
+```
