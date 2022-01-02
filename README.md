@@ -17,7 +17,7 @@ Include a spitrap!
 [VERSE 1]
 x (include 2 verses before as right now it starts weirdly)
 x
-(It's a) second pass - reckon swerving round triple -
+(It's a) second pass reckon - swerving round triple -
 feelin' thrill - like I'm living a life
 click click click shot up to the social spheres
 mind goes alight, mind goes alight.
