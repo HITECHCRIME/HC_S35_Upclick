@@ -14,6 +14,21 @@ Include a spitrap!
 
 ```
 
+
+roll hun
+uinvited ain't i woke again y'all
+cock and moe (ey)
+
+[CHORUS]
+this so for ya, 
+fucking dope yeah (hope?)
+all the praised nights
+what ya lookin' for is
+upclick
+
+
+
+
 [VERSE 1]
 x (include 2 verses before as right now it starts weirdly)
 x
@@ -30,7 +45,9 @@ cast your face like most nights
 we'll be done and you'll be fair
 
 [BRIDGE]
-damn roll honey
+damn 
+
+roll honey
 not invited ain't
 awoke again (interconnect?)(triggering?) (among sleepers) all
 cock and moe (ey)
